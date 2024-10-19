@@ -15,7 +15,7 @@ I'm Margaret Kibe, a highly motivated Virtual Assistant/Operations Manager with 
 - Teamwork: Collaborating effectively with the engineering, promotional, and client support departments in the realization of the company's objectives.
 Software Implementation: Collaborating with the team of programmers and other key stakeholders to develop and implement technological aids that enhance productivity (like CRM, ERP, etc.).
 
-📫 Don’t hesitate to contact me: maggikeibe0@gmail.com LinkedInhttps://www.linkedin.com/in/margaret-kibe-86b56111b/
+📫 Don’t hesitate to contact me: margaretkibe09@gmail.com LinkedInhttps://www.linkedin.com/in/margaret-kibe-86b56111b/
 
 
 
