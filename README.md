@@ -1,9 +1,9 @@
 I'm Margaret Kibe, a highly motivated Virtual Assistant/Operations Manager with a proven track record of over 3 years in organizing, managing, and analyzing CRM data, coordinating and implementing personalized outreach campaigns, and helping generate content accordingly.
 
-- 💻 I am a CRM specialist with experience carrying out CRM operations on **ZOHO** and **HubSpot**.
-- 📊 Data entry and list segmentation as well as report generation and information organization are some of my key strengths.
+- 💻 I am a CRM specialist with experience in CRM operations on **ZOHO** and **HubSpot**.
+- 📊 Data entry, list segmentation, report generation, and information organization are some of my key strengths.
 - 📰 I handle content development by participating in outreach, gathering relevant information from various news articles, and examining ongoing projects.
-- ✍️ I have a passion for creating social media content and actively seek out interesting ways to interact with followers.
+- ✍️ I am passionate about creating social media content and actively seek out interesting ways to interact with followers.
 - 🌟 Good interpersonal skills and problem-solving ability while performing tasks with minimal or no supervision.
 
 ### Services Offered:
@@ -15,7 +15,7 @@ I'm Margaret Kibe, a highly motivated Virtual Assistant/Operations Manager with 
 - Teamwork: Collaborating effectively with the engineering, promotional, and client support departments in the realization of the company's objectives.
 Software Implementation: Collaborating with the team of programmers and other key stakeholders to develop and implement technological aids that enhance productivity (like CRM, ERP, etc.).
 
-📫 Don’t hesitate to contact me: margaretkibe09@gmail.com LinkedInhttps://www.linkedin.com/in/margaret-kibe-86b56111b/
+📫 Don’t hesitate to contact me: maggiekibe0@gmail.com LinkedInhttps://www.linkedin.com/in/margaret-kibe-86b56111b/
 
 
 
